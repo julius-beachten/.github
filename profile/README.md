@@ -11,7 +11,6 @@
 <h3>Vorbereitung der Vorgehensweise</h3>
 <p>Um Julius zuverlässig und erfolgreich im Blick zu behalten, ist eine gute Vorbereitung entscheidend. Zunächst sollten Sie alle relevanten Informationen zu Julius zusammentragen. Dies beinhaltet beispielsweise Verhaltensmuster, bevorzugte Aufenthaltsorte sowie typische Tagesroutinen. Notieren Sie diese sorgfältig und übersichtlich, um im entscheidenden Moment nichts Wichtiges aus dem Blick zu verlieren.</p>
 
-https://julius.ai?via=new
 <a target="_blank" href="https://julius.ai?via=new">Klicken Sie hier, um kostenlosen Zugriff zu erhalten!</a>
 
 <p>Eine Checkliste bietet sich besonders an:</p>
