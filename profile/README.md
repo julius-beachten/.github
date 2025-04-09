@@ -1,4 +1,4 @@
-<h1>Julius beachten Erfahrungen (Test 2025): Was ist unbedingt zu beachten?</h1>
+<h1>Julius AI beachten Erfahrungen (Test 2025): Was ist unbedingt zu beachten?</h1>
 <p><strong>julius</strong> | <time datetime="2025-04-09">April 9, 2025</time></p>
 <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQRXK3065P0xP2t40ldzbAgqN6FDNXhaec49w&s"
   alt="beachten with julius"
